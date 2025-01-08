@@ -1,0 +1,5 @@
+- Setting your expectations
+-  _Discerning_  followed by  _choosing_  is the way to make good  _decisions_ . - [112124_2111](../DATA/112124_2111.md)
+- Let someone  _surprise_  you by not setting your  _expectations_  of them too high. - [120424_0924](../DATA/120424_0924.md)
+- My  _standards_  can not be  _expected_  to be the same in others. - [120424_0938](../DATA/120424_0938.md)
+-  _Knowing_  your  _audienc_ e is the best way to  _prepare_  your  _expectations_ . - [120424_0905](../DATA/120424_0905.md)

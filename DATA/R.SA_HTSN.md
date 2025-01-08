@@ -1,0 +1,7 @@
+- Title: How to Take Smart Notes -Sönke Ahrens
+- Purpose: To understand the Zettelkasten method so I can apply it to my life.
+-  _p.13_  "It is a huge misunderstanding that the only alternative to planning is aimless messing around. The challenge is to structure one’s workflow in a way that insight and new ideas can become the driving forces that push us forward. We do not want to make ourselves dependent on a plan that is threatened by the unexpected, like a new idea, discovery – or insight."
+-  _p.16_  "Only if nothing else is lingering in our working memory and taking up valuable mental resources can we experience what Allen calls a “mind like water” - the state where we can focus on the work right in front of us without getting distracted by competing thoughts."
+- p.20 “I only do what is easy. I only write when I immediately know how to do it. If I falter for a moment, I put the matter aside and do something else.” - Niklas Luhmann
+- p.24 "We need a reliable and simple external structure to think in that compensates for the limitations of our brains."
+-  _p.72 _ "The outcome of reading with a pen in the hand is not possible to anticipate either, and here, too, the idea is not to copy, but to have a meaningful dialogue with the texts we read."

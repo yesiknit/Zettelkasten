@@ -1,0 +1,5 @@
+- Title: How to Read A Book - Mortimer J. Adler and Charles Van Doren
+- Purpose: The book suggested that to read a book is to understand it.
+- p.19 Francis Bacon once remarked that "some books are to be tasted, others to be swallowed, and some few to be chewed and digested." Reading a book analytically is chewing and digesting it.
+- p.52 "Now there is no other way of forming a habit of operation than by operating. That is what it means to say one learns to do by doing."
+- 

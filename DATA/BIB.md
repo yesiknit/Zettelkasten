@@ -1,0 +1,8 @@
+- 
+- Books
+    - Building a Second Brain - Tiago Forte - [R.TF_BSB](../DATA/R.TF_BSB.md)
+    - How to Read A Book - Mortimer J. Adler and Charles Van Doren - [R.MJA_HRB](../DATA/R.MJA_HRB.md)
+    - How to Take Smart Notes -Sönke Ahrens - [R.SA_HTSN](../DATA/R.SA_HTSN.md)
+    - Wanting - The power of mimetic desire in everyday life - Luke Burgis - [R.LB_WPDEL](../DATA/R.LB_WPDEL.md)
+- Podcasts
+    - Penn's Sunday School - [R.PSS](../DATA/R.PSS.md)

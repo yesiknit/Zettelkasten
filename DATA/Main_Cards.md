@@ -1,0 +1,16 @@
+- 
+- Being  _open minded_  has  _advantages_  over  _single mindedness_ . - [112124_1550](../DATA/112124_1550.md)
+-  _Discerning_  followed by  _choosing_  is the way to make good  _decisions_ . - [112124_2111](../DATA/112124_2111.md)
+- The  _goal_  is  _discovery_  and _ ideas_ , not the  _plan_ . - [112124_2130](../DATA/112124_2130.md)
+- A clear  _mind_  is needed to  _focus_  without  _distractions_ . - [112224_0614](../DATA/112224_0614.md)
+- Keeping  _notes_  as you  _read_  is like having a  _conversation_  with a  _book_ . - [112224_0621](../DATA/112224_0621.md)
+- Each  _book_  has a  _story_  to tell. Some require  _listening_ . - [112224_0633](../DATA/112224_0633.md)
+-  _Knowing_  your  _audienc_ e is the best way to  _prepare_  your  _expectations_ . - [120424_0905](../DATA/120424_0905.md)
+- Let someone  _surprise_  you by not setting your  _expectations_  of them too high. - [120424_0924](../DATA/120424_0924.md)
+- My  _standards_  can not be  _expected_  to be the same in others. - [120424_0938](../DATA/120424_0938.md)
+- Unclaimed
+    - If we could engineer our  _desires_  what would you  _want_  to want? - [112124_1720](../DATA/112124_1720.md)
+    -  _Hope_  comes from  _possibility_  which creates  _desire_ . - [112124_1540](../DATA/112124_1540.md)
+    - Minimize  _rushing_  and  _enjoy_  the  _moment_ . - [120924_1743](../DATA/120924_1743.md)
+    - A foolish  _mistake_  can  _ruin_  much  _progress_ .   - [120924_1814](../DATA/120924_1814.md)
+- 

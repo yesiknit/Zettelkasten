@@ -1,0 +1,5 @@
+- Taking the time to make decisions
+-  _Discerning_  followed by  _choosing_  is the way to make good  _decisions_ . - [112124_2111](../DATA/112124_2111.md)
+- The  _goal_  is  _discovery_  and _ ideas_ , not the  _plan_ . - [112124_2130](../DATA/112124_2130.md)
+- A clear  _mind_  is needed to  _focus_  without  _distractions_ . - [112224_0614](../DATA/112224_0614.md)
+- Being  _open minded_  has  _advantages_  over  _single mindedness_ . - [112124_1550](../DATA/112124_1550.md)

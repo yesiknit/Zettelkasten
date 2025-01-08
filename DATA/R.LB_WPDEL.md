@@ -1,0 +1,7 @@
+- Title: Wanting - The power of mimetic desire in everyday life. - Luke Burgis
+- Purpose: The subject "want to want" came to mind and this seemed like a good but to study that.
+-  _p.179_  "The word "decision" ... means "to cut." When we decide to pursue one thing, we necessarily cut away another. If there's no cutting, we haven't  made any decisions at all...The word "discernment" ... means "to distinguish"; it refers to the ability to see the difference between two paths and to know which one is the better way forward."
+-  _p.188_  "Historian Yuval Noah Harari ends his book  __Sapiens: A Brief History of Humankind __ with these words: 'But since we might soon be able to engineer our desires, too, the real question facing us is not 'What do we want to become?,' but 'What do we want to want?' ... the question implies that it's possible to want to want something, yet not be capable of wanting it. ... We cannot want what we lack a model for."
+-  _p.194_  "Without the conviction that the fulfillment of a desire is possible, there is no hope - and therefore no desire."
+- Appeddix A "Man is the creature who does not know what to desire, and he turns to others in order to make up his mind" - René Girard
+- 

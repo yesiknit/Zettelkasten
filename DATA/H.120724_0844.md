@@ -1,0 +1,3 @@
+- Having discussions with books
+- Keeping  _notes_  as you  _read_  is like having a  _conversation_  with a  _book_ . - [112224_0621](../DATA/112224_0621.md)
+- Each  _book_  has a  _story_  to tell. Some require  _listening_ . - [112224_0633](../DATA/112224_0633.md)

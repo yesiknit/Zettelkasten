@@ -1,0 +1,26 @@
+- Captured
+    -  _03/16/24_  - "Don't run when no one is chasing you."  - magicians adage - This means that if the spectator doesn’t know what comes next in the routine or when the sleight-of-hand will happen, then why rush through the routine and ruin the moment
+    -  _03/22/24_  - "It takes a thousand steps to get to the top of a mountain but one little hop'll take you all the way back to the bottom..." Terry Pratchett - Night Watch
+    -  _04/27/24_  - "We don’t have to relax our standards but we can certainly lower our expectations" dailystoic.com
+    -  _11/03/24_  -  Unoccupied temperature. Compared to occupied and when the change in degrees must occur. Much before occupation the temp must begin changing, but immediately after the occupation leaves the change must happen. I know it takes time but the idea is that there must be a preparation for occupation. Adjusting the temperature is like adjusting the expectations for the occupants.
+    -  _11/05/24_  - "The goal is  __**not**__   to read the book. It's to understand what the author is trying to say." - Nick Milo - www.linkingyourthinking.com/ideaverse/books-are-for-thinking-not-reading
+    -  _11/23/24_  - “Disappointment is unmet expectations, and the more significant the expectations, the more significant the disappointment” - Brené Brown
+    - 
+- Floating
+    - 04/04/24 - "The way to deal with an impossible task was to chop it down into a number of merely very difficult tasks, and break each of them into a group of horribly hard tasks, and each one of them into tricky jobs and each one of them..." Terry Pratchett - Truckers
+    - 04/07/24 - "It frightens me, the awful truth of how sweet life can be"  - Up to Me - song by Bob Dylan
+    - 04/16/27 - "Nothing's louder than the end of a song that's always been there." Terry Pratchett - The Wee Free Men
+    - 11/17/24 - "To acquire knowledge one must study. But to acquire wisdom one must observe." - Marilyn Vos Savant (Guinness record highest IQ)
+    - 11/09/24 - An encouraged idea: take notes...for each chapter in a book write in my own words what was said and what was unsaid...
+    - Can I use quotes from lists of quotes to create ideas? Look for list and see...
+    - 11/10/24 - "Top down thinking is when you plan a meal, find recipes, get ingredients, and then cook the meal. You started with the result and worked your way down to what was needed to make it happen. Bottoms up is when you rifle through your cabinets and fridge to try to cobble together something edible. You start with the components and figure out what you can do." - www.reddit.com/r/explainlikeimfive/comments/106e5v1/eli5 what is topdown and bottomup thinking/
+    - 11/26/24 - On assuredness, feeling understood, valued, and accepted by others provides security to ones lacking self esteem. 
+    - 11/27/24-A - "Normal is an illusion. What is normal for the spider is chaos for the fly.” - Charles Addams
+    - 11/27/24-B - "Are we going to get angry (which is easy…even if it ultimately makes things worse)? Or are we going to feel hurt (and then from that hurt, heal, grow and learn?)" - Daily Stoic <info@dailystoic.com>
+    - 11/27/24-C - "... celebrate your mistakes! If you would not make mistakes, you would have nothing to learn. Learning is what makes us richer, granting us wealth no money can buy. So, be brave and daring, and whenever you feel the judgmental adult in you attacking your joyful childlike creativity, counter it with frolic laughter." Bernd Ogrodnik
+    - 11/27/24-D - “Build a man a fire, and he'll be warm for a day. Set a man on fire, and he'll be warm for the rest of his life.” Terry Pratchett - Jingo
+    - 12/03/24 - "I'm full of thought, but I am the thinker" - You Are Not Your Thinking - [You Are Not Your Thinking - YouTube](https://www.youtube.com/watch?v=WaDO2PrzZAk)
+    - 12/15/24 - Am I aware that I am awake? Can I turn off the thinking and know the real me?
+    - 12/17/24 - “Be brave enough to suck at something new.” - Jon Acuff
+- 
+- 

@@ -1,0 +1,5 @@
+- Title: Penn's Sunday School quotes
+- Purpose: A podcast with Penn Jillette, Michael Goudeau, Matt Donnelly discussing the news of the week and personal stories. I listen to them on my morning walks.
+-  _08/13/24_  Segal's law is an adage that states: A man with a watch knows what time it is. A man with two watches is never sure.
+    - Wikipedia: At surface level, the adage emphasizes the consistency that arises when information comes from a single source and points out the potential pitfalls of having too much conflicting information. However, the underlying message is to question the apparent certainty of anyone who only has one source of information. The man with one watch has no way to identify error or uncertainty.
+- 
