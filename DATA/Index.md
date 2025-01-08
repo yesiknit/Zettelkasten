@@ -1,0 +1,107 @@
+- A
+    - Advantage
+        - Being  _open minded_  has  _advantages_  over  _single mindedness_ . - [112124_1550](../DATA/112124_1550.md)
+    - Audience
+        -  _Knowing_  your  _audienc_ e is the best way to  _prepare_  your  _expectations_ . - [120424_0905](../DATA/120424_0905.md)
+- B
+    - Book
+        - Keeping  _notes_  as you  _read_  is like having a  _conversation_  with a  _book_ . - [112224_0621](../DATA/112224_0621.md)
+        - Each  _book_  has a  _story_  to tell. Some require  _listening_ . - [112224_0633](../DATA/112224_0633.md)
+        - Having  _discussions_  with  _books_  - [H.120724_0844](../DATA/H.120724_0844.md)
+- C
+    - Choose
+        -  _Discerning_  followed by  _choosing_  is the way to make good  _decisions_ . - [112124_2111](../DATA/112124_2111.md)
+    - Conversation
+        - Keeping  _notes_  as you  _read_  is like having a  _conversation_  with a  _book_ . - [112224_0621](../DATA/112224_0621.md)
+- D
+    - Decision
+        -  _Discerning_  followed by  _choosing_  is the way to make good  _decisions_ . - [112124_2111](../DATA/112124_2111.md)
+        - Taking the  _time_  to make  _decisions_  - [H.120724_2048](../DATA/H.120724_2048.md)
+    - Desire
+        - If we could engineer our  _desires_  what would you  _want_  to want? - [112124_1720](../DATA/112124_1720.md)
+        -  _Hope_  comes from  _possibility_  which creates  _desire_ . - [112124_1540](../DATA/112124_1540.md)
+    - Discern
+        -  _Discerning_  followed by  _choosing_  is the way to make good  _decisions_ . - [112124_2111](../DATA/112124_2111.md)
+    - Discover
+        - The  _goal_  is  _discovery_  and _ ideas_ , not the  _plan_ . - [112124_2130](../DATA/112124_2130.md)
+    - Discussion
+        - Having  _discussions_  with  _books_  - [H.120724_0844](../DATA/H.120724_0844.md)
+    - Distracton
+        - A clear  _mind_  is needed to  _focus_  without  _distractions_ . - [112224_0614](../DATA/112224_0614.md)
+- E
+    - Enjoy
+        - Minimize  _rushing_  and  _enjoy_  the  _moment_ . - [120924_1743](../DATA/120924_1743.md)
+    - Expectation
+        -  _Knowing_  your  _audienc_ e is the best way to  _prepare_  your  _expectations_ . - [120424_0905](../DATA/120424_0905.md)
+        - Let someone  _surprise_  you by not setting your  _expectations_  of them too high. - [120424_0924](../DATA/120424_0924.md)
+        - My  _standards_  can not be  _expected_  to be the same in others. - [120424_0938](../DATA/120424_0938.md)
+        -  _Setting_  your  _expectations_  - [H.120724_0944](../DATA/H.120724_0944.md)
+- F
+    - Focus
+        - A clear  _mind_  is needed to  _focus_  without  _distractions_ . - [112224_0614](../DATA/112224_0614.md)
+- G
+    - Goal
+        - The  _goal_  is  _discovery_  and _ ideas_ , not the  _plan_ . - [112124_2130](../DATA/112124_2130.md)
+- H
+    - Hope
+        -  _Hope_  comes from  _possibility_  which creates  _desire_ . - [112124_1540](../DATA/112124_1540.md)
+- I
+    - Idea
+        - The  _goal_  is  _discovery_  and _ ideas_ , not the  _plan_ . - [112124_2130](../DATA/112124_2130.md)
+- J
+- K
+    - Knowing
+        -  _Knowing_  your  _audienc_ e is the best way to  _prepare_  your  _expectations_ . - [120424_0905](../DATA/120424_0905.md)
+- L
+    - Listen
+        - Each  _book_  has a  _story_  to tell. Some require  _listening_ . - [112224_0633](../DATA/112224_0633.md)
+- M
+    - Mind
+        - Being  _open minded_  has  _advantages_  over  _single mindedness_ . - [112124_1550](../DATA/112124_1550.md)
+        - A clear  _mind_  is needed to  _focus_  without  _distractions_ . - [112224_0614](../DATA/112224_0614.md)
+    - Mistake
+        - A foolish  _mistake_  can  _ruin_  much  _progress_ .   - [120924_1814](../DATA/120924_1814.md)
+    - Moment
+        - Minimize  _rushing_  and  _enjoy_  the  _moment_ . - [120924_1743](../DATA/120924_1743.md)
+- N
+    - Notes
+        - Keeping  _notes_  as you  _read_  is like having a  _conversation_  with a  _book_ . - [112224_0621](../DATA/112224_0621.md)
+- O
+- P
+    - Plan
+        - The  _goal_  is  _discovery_  and _ ideas_ , not the  _plan_ . - [112124_2130](../DATA/112124_2130.md)
+    - Possible
+        -  _Hope_  comes from  _possibility_  which creates  _desire_ . - [112124_1540](../DATA/112124_1540.md)
+    - Prepare
+        -  _Knowing_  your  _audienc_ e is the best way to  _prepare_  your  _expectations_ . - [120424_0905](../DATA/120424_0905.md)
+    - Progress
+        - A foolish  _mistake_  can  _ruin_  much  _progress_ .   - [120924_1814](../DATA/120924_1814.md)
+- Q
+- R
+    - Read
+        - Keeping  _notes_  as you  _read_  is like having a  _conversation_  with a  _book_ . - [112224_0621](../DATA/112224_0621.md)
+    - Ruin
+        - A foolish  _mistake_  can  _ruin_  much  _progress_ .   - [120924_1814](../DATA/120924_1814.md)
+    - Rush
+        - Minimize  _rushing_  and  _enjoy_  the  _moment_ . - [120924_1743](../DATA/120924_1743.md)
+- S
+    - Setting
+        -  _Setting_  your  _expectations_  - [H.120724_0944](../DATA/H.120724_0944.md)
+    - Standards
+        - My  _standards_  can not be  _expected_  to be the same in others. - [120424_0938](../DATA/120424_0938.md)
+    - Story
+        - Each  _book_  has a  _story_  to tell. Some require  _listening_ . - [112224_0633](../DATA/112224_0633.md)
+    - Surprise
+        - Let someone  _surprise_  you by not setting your  _expectations_  of them too high. - [120424_0924](../DATA/120424_0924.md)
+- T
+    - Time
+        - Taking the  _time_  to make  _decisions_  - [H.120724_2048](../DATA/H.120724_2048.md)
+- U
+- V
+- W
+    - Want
+        - If we could engineer our  _desires_  what would you  _want_  to want? - [112124_1720](../DATA/112124_1720.md)
+- X
+- Y
+- Z
+- 

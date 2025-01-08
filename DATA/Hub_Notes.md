@@ -1,0 +1,4 @@
+- Having  _discussions_  with  _books_  - [H.120724_0844](../DATA/H.120724_0844.md)
+-  _Setting_  your  _expectations_  - [H.120724_0944](../DATA/H.120724_0944.md)
+- Taking the  _time_  to make  _decisions_  - [H.120724_2048](../DATA/H.120724_2048.md)
+- 
